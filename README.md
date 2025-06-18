@@ -1,4 +1,7 @@
-## Hi there 👋
+
+![DizzyTetoGIF](https://github.com/user-attachments/assets/ea76ea67-ad16-43e7-987e-ce791af49fae)  ![DizzyTetoGIF](https://github.com/user-attachments/assets/ea76ea67-ad16-43e7-987e-ce791af49fae)
+
+
 
 <!--
 **IDDQD1337/IDDQD1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
